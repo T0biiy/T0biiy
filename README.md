@@ -1,3 +1,6 @@
+  [![HitCount](https://hits.dwyl.com/T0biiy/https://githubcom/T0biiy/T0biiy/edit/main/READMEmd.svg?style=flat-square)](http://hits.dwyl.com/T0biiy/https://githubcom/T0biiy/T0biiy/edit/main/READMEmd)
+
+
 ![MasterHead]( https://64.media.tumblr.com/9939be5f0eefefc7c80785544425d87f/82b195cb1a5e6bd3-41/s2048x3072/0b947b84d5931d7d29bce681d8a50b3cb3e91b3f.jpg)
 <span style="color: #3C46A9;">𝐓𝐡𝐞 𝐩𝐮𝐫𝐩𝐨𝐬𝐞 𝐨𝐟 𝐭𝐡𝐢𝐬 𝐢𝐬 𝐦𝐨𝐬𝐭𝐥𝐲 𝐏𝐎𝐍𝐘 𝐓𝐎𝐖𝐍, 𝐭𝐨 𝐤𝐧𝐨𝐰 𝐦𝐨𝐫𝐞 𝐚𝐛𝐨𝐮𝐭 "𝐌𝐄" 𝐜𝐡𝐞𝐜𝐤 𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞</span>.
 
